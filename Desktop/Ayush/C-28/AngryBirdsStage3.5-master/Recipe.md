@@ -1,0 +1,4 @@
+Recipe:
+Powder Parle-G biscuits into powder in mixer. Take the ingredients in a big bowl. Add little milk to make batter. Stir the batter until it becomes smooth paste. Add vanilla essence, baking powder and baking soda. Whisk it. Take a baking bowl. Grease it with oil and dust little wheat flour. Now add the batter into the bowl. Add dry fruits on top of it. Take a large cooker and place a stand on it. Now place the cake batter bowl into the cooker and close it, removing the whistle of the cooker. Keep for 30-35 minutes on gas on meddium flame. Check in between if it is cooked or not and then turn off the gas and keep it aside to cool down. Remove the cake from the vessel and place it on a table.
+
+THE CAKE IS READY!!!
